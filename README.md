@@ -1,1 +1,1 @@
-Hi there✌, I am Basit, A muslim Activist✔👌. Interesting in Hacktivism💻. Currently on Python Programming🎗. Needs a colaboration on Networkin👫💻
+Hi there✌, I am Basit, A muslim Activist✔👌. Currently a Python Programmer🎗. Needs a colaboration on Networkin👫💻
